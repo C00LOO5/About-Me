@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Kartheek Pawar (C00LOO5)
+# 👋 Hi, I'm Kartheek Pawar (C00LOO5
 
 🎓 B.Tech in Computer Science | 🧠 Deep Learning & Automation Enthusiast | 🎮 Gamer-turned-Developer
 
